@@ -4,3 +4,4 @@ One life. No rewinds. Living boldly, thinking freely, chasing meaning - not appr
 yyyy
 ..7 h 
 пвр dvf 
+5
