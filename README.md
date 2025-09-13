@@ -1,6 +1,6 @@
 # blaze
 
-One life. No rewinds. Living boldly, thinking freely, chasing meaning - not approva
+One life. No rewinds. Living boldly, thinking freely, chasing meaning - not appro
 yy
 
 
