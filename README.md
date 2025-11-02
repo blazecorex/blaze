@@ -1,6 +1,6 @@
 # blaze
 
-One life. No rewinds. Living boldly, thi
+One life. No rewinds. Living boldly, th
 -
 
 
