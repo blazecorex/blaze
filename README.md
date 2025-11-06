@@ -1,6 +1,6 @@
 # blaze
 
-One life. No rewinds. Living boldl
+One life. No rewinds. Living bold
 
 
 
